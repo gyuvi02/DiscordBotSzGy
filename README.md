@@ -1,0 +1,2 @@
+# DiscordBotSzGy
+Beadandó E-sport
